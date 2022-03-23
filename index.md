@@ -3,8 +3,10 @@
 Cyber Security Magaziane  
 
 
-[Twitter:](https://twitter.com/onhexmag)
-[Telegram:](https://t.me/onhexmag)
+[Twitter](https://twitter.com/onhexmag)  
+
+
+[Telegram](https://t.me/onhexmag)
 
 ### Issue 1
 ![images](https://github.com/onhexmag/onhexmag.github.io/blob/main/images/t_screen1.jpg)
