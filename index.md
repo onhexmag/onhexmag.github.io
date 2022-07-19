@@ -23,6 +23,7 @@ Download: [Extra File](https://drive.google.com/file/d/128Ct8xj7U2EC-b-uupvOC9PL
 
 Download: [Magazine PDF](https://drive.google.com/file/d/1JeFQbNaMP_THHqI9ps6Ao6WFQYfSk7zE/view).  
 [82cc51c10f6c45de0216e1ad2fa8ed70bc7fcc297e81580040740447ee319652]  
-Download: [Extra File](https://drive.google.com/file/d/1ImoPBIqxg4CKYaieYKuIs63R8VkC04qc/view).
+Download: [Extra File](https://drive.google.com/file/d/1ImoPBIqxg4CKYaieYKuIs63R8VkC04qc/view).  
+[A19C4285176232BF425EABBB1A1AF239B966EA2A7A6115F1424B75E514498AFE]
 
 
