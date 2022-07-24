@@ -14,7 +14,8 @@ Cyber Security Magaziane
 ### Issue 1
 ![](/images/t_screen1.jpg)
 
-Download: [Magazine PDF](https://drive.google.com/file/d/1Hu1BNyMIV5JcSSuLkqvIx6GLj9MfhF6w/view).  
+Download: [Magazine PDF](https://drive.google.com/file/d/17XAHnTRHHDxKavWJ-pF8gc_iIBytDnR6/view).  
+[dc215bdd6f09d3152e588e72c1d000a8e9fce96c701b99a6bd028d247afa164e]  
 Download: [Extra File](https://drive.google.com/file/d/128Ct8xj7U2EC-b-uupvOC9PL2AX7VR-w/view).
 
 
