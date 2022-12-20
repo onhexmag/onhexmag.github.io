@@ -28,3 +28,8 @@ Download: [Extra File](https://drive.google.com/file/d/1ImoPBIqxg4CKYaieYKuIs63R
 [A19C4285176232BF425EABBB1A1AF239B966EA2A7A6115F1424B75E514498AFE]
 
 
+### Issue 3 (Only Cover)
+![](/images/t_screen3.jpg)
+
+Download: [Magazine PDF](https://drive.google.com/file/d/1--TZpOlUCAtlzZRrprcmnjg2cKPKnixx/view).  
+[d2499d732cdc7151386392092a94da27c34c20d1d91203cd5aa8ef1c77fdc476]  
